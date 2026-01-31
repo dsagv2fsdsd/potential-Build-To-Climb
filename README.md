@@ -2,7 +2,7 @@
 
 [![Build To Climb Script 2025 Banner](https://i.postimg.cc/brL14xX8/11.jpg)](https://postimg.cc/gLXwZ6kB)
 
-# Build To Climb Script 2025 | Auto Win Infinite Cash Speed Fly God Mode Unlock ALL Skins Trails Items | Build To Climb Script Undetected December 2025 🧗‍♂️
+# Build To Climb Script 2026 | Auto Win Infinite Cash Speed Fly God Mode Unlock ALL Skins Trails Items | Build To Climb Script Undetected December 2026 🧗‍♂️
 
 ![Version](https://img.shields.io/badge/Version-2025.12.20-00CED1?style=for-the-badge&logo=roblox&logoColor=white)
 ![Status](https://img.shields.io/badge/Status-UNDETECTED%20100%25-success?style=for-the-badge)
